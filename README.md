@@ -1,3 +1,5 @@
-## Hey! 
+## hey!
 
-I keep building stuff for fun. Love the grind of building end-to-end. 🚀
+somehow I keep building for fun
+
+love the grind of building end-to-end 🚀
